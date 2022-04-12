@@ -1,6 +1,6 @@
 ## Thursday Karaoke at 615E from 3:40 - 4:40
-Hi you are invited to come to karaoke at 615E on Thursday(4/11)!!
-This is a short test run of this event but it will still be a fun 45-60 mins!!!
+Hi you are invited to come to karaoke at 615E on Thursday(4/14)!!
+This is a short test run of a future bigger event but it will still be a fun 45-60 mins!!!
 
 **Please plan beforehand the song that you wanna solo/duos/group sing so we can speed through and give as many people a chance to sing**
 
