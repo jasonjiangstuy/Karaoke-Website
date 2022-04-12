@@ -12,3 +12,4 @@ bohemian rhapsody - Sad TwT<br>
 a-ha - Take On Me - Happy ^w^<br>
 
 ![Image](https://raw.githubusercontent.com/jasonjiangstuy/Karaoke-Website/main/assets/frame.png)
+https://jasonjiangstuy.github.io/Karaoke-Website/
